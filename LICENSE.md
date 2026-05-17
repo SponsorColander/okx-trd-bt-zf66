@@ -1,4 +1,4 @@
-# 
+# exclusive bybit trading bot scripts is the best bybit trading bot scripts with risk-management and scalping. Safe, reliable, and optimized for CEX, DEX, and algorithmic trading
 
 
 
